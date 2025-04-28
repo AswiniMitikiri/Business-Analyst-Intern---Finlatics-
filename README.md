@@ -1,1 +1,1 @@
-# Business-Analyst-Intern---Finlatics-
+# Business-Analyst-Intern---Finlatics
